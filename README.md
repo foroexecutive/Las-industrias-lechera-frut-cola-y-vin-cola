@@ -1,1 +1,2 @@
 # Las-industrias-lechera-frut-cola-y-vin-cola
+La totalidad de las actividades agropecuarias realizadas con un criterio capitalista, es decir, las que el país realizó no con el propósito de consumir sino con el de alimentar al consumo del exterior, se limitaron hasta esa época a la zona litoral. Dentro y fuera de ella comenzaron a surgir o se hallaban en un grado avanzado de desarrollo diversas otras que pugnaban por satisfacer al mercado interior. Entre las primeras se debe situar a la industria lechera y entre las demás a las frutícolas, vitícolas, harineras y del azúcar.
